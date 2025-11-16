@@ -1,2 +1,0 @@
-# USARB-Orar
-Evaluare Periodica
